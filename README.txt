@@ -1,0 +1,3 @@
+######ARQUIVO DE ESTUDO UNINOVE#######
+
+NÃO COMERCIAL.
